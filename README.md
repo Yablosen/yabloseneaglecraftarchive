@@ -1,1 +1,2 @@
 # yabloseneaglecraftarchive
+This is Yablosen.I am not one of the creators of eaglecraft or minecraftforfree.com, i just archived one of a sites that are having eaglecraft.If mojang is gonna make me shut down this website.I will delete it fully.Dear radmanplays i am just making archive of your website i am not trying to copy you or do somthing bad.Link to randman plays radmanplays.github.io/play/ .
